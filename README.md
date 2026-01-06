@@ -66,9 +66,10 @@ https://youtu.be/klZj\_282ApY
 
 ###### **👤 Author**
 
-**Uma Anil Tadas**
+**Harshita V Machinahalli**
 
 Aspiring Data Analyst | Excel | SQL | Power BI
+
 
 
 
